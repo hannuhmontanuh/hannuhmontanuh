@@ -1,9 +1,9 @@
 ## "We got the party with us!"
-Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on Ponytown. Most likely in my Hannah Montana skin. Feel free to say hello!! ![](https://files.catbox.moe/s8zi57.gif)
+Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on Ponytown. Most likely in a cosplay of a Disney Channel character. Feel free to say hello!! ![](https://files.catbox.moe/s8zi57.gif)
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Interact if you like these fandoms: Hannah Montana, Sonny With a Chance, Liv & Maddie, Descendants, Victorious, iCarly, Club Penguin, Animal Jam, Littlest Pet Shop, Heathers, Teen Titans + more!
+Interact if you like these fandoms: Hannah Montana, Sonny With a Chance, Liv & Maddie, Descendants, Victorious, iCarly, Club Penguin, Animal Jam, Littlest Pet Shop, Heathers, Teen Titans + more! ![](https://files.catbox.moe/f1ok3t.gif)
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
