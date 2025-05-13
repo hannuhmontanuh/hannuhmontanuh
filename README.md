@@ -11,6 +11,10 @@ I don't really have any DNI besides like,, the basics. ![](https://files.catbox.
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
+Byi: I'm lowkey a Disney adult, I'm not too insane about it but I am hyperfixated on 2000s Disney Channel currently.
+
+![](https://files.catbox.moe/hhu10n.gif)
+
 ![](https://files.catbox.moe/8cxl7d.png) ![](https://files.catbox.moe/n6sx2j.gif) ![](https://files.catbox.moe/if4g15.png) ![](https://files.catbox.moe/cwsg3r.gif) ![](https://files.catbox.moe/1zx6c0.gif) ![](https://files.catbox.moe/27yxzc.gif) ![](https://files.catbox.moe/g9y0el.gif) ![](https://files.catbox.moe/m0iqvm.gif) ![](https://files.catbox.moe/7owoia.gif) ![](https://files.catbox.moe/ylppjt.gif) ![](https://files.catbox.moe/dw6hof.gif) ![](https://files.catbox.moe/7kxbsz.gif) ![](https://files.catbox.moe/ht9adh.png) ![](https://files.catbox.moe/2uimad.png)
 
 <!--
