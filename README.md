@@ -11,7 +11,7 @@ I don't really have any DNI besides like,, the basics. ![](https://files.catbox.
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Byi: I'm lowkey a Disney adult, I'm not too insane about it but I am hyperfixated on 2000s Disney Channel currently.
+Byi: I'm lowkey a Disney adult (well, not rlly an adult yet I'm still 17) I'm not too insane about it but I am hyperfixated on 2000s Disney Channel currently.
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
