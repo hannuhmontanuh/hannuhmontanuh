@@ -7,7 +7,7 @@ Interact if you like these fandoms: Hannah Montana, Sonny With a Chance, JONAS, 
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Strict DNI: TCC, zionists, racists, transphobes, homophobes, (pro) endos, darkshippers.
+Strict DNI: TCC, zionists, racists, transphobes, homophobes, (pro) endos, darkshippers, MSI supporters, pro-contact harmful paras, radqueers.
 
 Thin ice: Zero Day fans, Forsaken fandom, Dandy's World fandom  ![](https://files.catbox.moe/gkoxo0.gif)
 
