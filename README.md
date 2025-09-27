@@ -1,4 +1,9 @@
 ## "We got the party with us!"
+
+![](https://dl.glitter-graphics.com/pub/1510/1510041qubkp7fa51.gif)
+
+![](https://files.catbox.moe/hhu10n.gif)
+
 Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on Ponytown. Most likely in a cosplay of a Disney Channel character. Feel free to say hello!! ![](https://files.catbox.moe/s8zi57.gif)
 
 ![](https://files.catbox.moe/hhu10n.gif)
