@@ -8,17 +8,14 @@ Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on P
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Interact if you like these fandoms: Hannah Montana, Sonny With a Chance, JONAS, Modern Family, Liv & Maddie, Descendants, Victorious, iCarly, Club Penguin, Animal Jam, Littlest Pet Shop, Heathers, Teen Titans + more! ![](https://files.catbox.moe/f1ok3t.gif)
+Interact if you like these things: Hannah Montana, Sonny With a Chance, JONAS, Modern Family, Liv & Maddie, Descendants, Victorious, iCarly, Club Penguin, Animal Jam, Littlest Pet Shop, Heathers, Teen Titans + more! ![](https://files.catbox.moe/f1ok3t.gif)
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Strict DNI: TCC (I GENUINELY DESPISE ALLLL OF YOU IDC), zionists, racists, transphobes, homophobes, (pro) endos, darkshippers, MSI supporters, pro-contact harmful paras, radqueers.
-
-Thin ice: Zero Day fans (the small minority of those who simply enjoyed the movie and don't romanticise or condone the events within it are fine, the rest of you DNI though.), Forsaken fandom, Dandy's World fandom  ![](https://files.catbox.moe/gkoxo0.gif)
-
-![](https://files.catbox.moe/hhu10n.gif)
-
-Byi: I'm lowkey a Disney adult. I'm not too insane about it but I am hyperfixated on 2000s Disney Channel currently.
+Byi:  
+- A lot of my interests are really childish (if you couldn't tell already)
+- Things like darkshipping and kodocon content personally make me uncomfortable, so if you could refrain from talking to me about those things that would be great ;^^ I won't harrass you if you're into things like that (as long as you don't support real abuse) though, just know I'm not into that sort of thing 
+- That's all I think
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
