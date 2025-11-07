@@ -14,8 +14,8 @@ Interact if you like these things: Hannah Montana, Sonny With a Chance, JONAS, M
 
 Byi:  
 - A lot of my interests are really childish (if you couldn't tell already)
-- Things like darkshipping and kodocon content personally make me uncomfortable, so if you could refrain from talking to me about those things that would be great ;^^ I won't harrass you if you're into things like that (as long as you don't support real abuse) though, just know I'm not into that sort of thing 
-- That's all I think
+- Things like darkshipping and kodocon content personally make me uncomfortable, so if you could refrain from talking to me about those things that would be great ;^^ I don't harrass people over it, but still. I dislike it.
+- I'm disabled, specifically developmentally disabled (autistic + possible dyspraxia)
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
