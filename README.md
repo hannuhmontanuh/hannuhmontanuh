@@ -19,6 +19,13 @@ Byi:
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
+DNI/will block: 
+- Minors on 18+ server
+- If you romanticise and/or glorify irl shooters
+- If you're racist, transphobic, homophobic, ableist, etc
+
+![](https://files.catbox.moe/hhu10n.gif)
+
 ![](https://komarev.com/ghpvc/?username=hannuhmontanuh&color=ff6eaf&style=plastic&label=cool+people&abbreviated=true)
 
 ![](https://files.catbox.moe/hhu10n.gif)
