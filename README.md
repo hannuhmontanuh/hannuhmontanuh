@@ -5,6 +5,7 @@
 ![](https://files.catbox.moe/hhu10n.gif)
 
 Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on Ponytown. Most likely in a cosplay of a Disney Channel character. Feel free to say hello!! ![](https://files.catbox.moe/s8zi57.gif)
+Also if I leave randomly in the middle of a conversation, then my wi-fi probably went out.
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
