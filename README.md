@@ -16,14 +16,14 @@ Interact if you like these things: Hannah Montana, Sonny With a Chance, JONAS, M
 Byi:  
 - A lot of my interests are really childish (if you couldn't tell already)
 - Things like darkshipping and kodocon content personally make me uncomfortable, so if you could refrain from talking to me about those things that would be great ;^^ I don't harrass people over it, but still. I dislike it.
-- I'm disabled, specifically developmentally disabled (autistic + possible dyspraxia)
+- I'm disabled, specifically developmentally disabled (autistic + possible dyspraxia). It affects how I interact with people a lot
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-DNI/will block: 
+'DNI'/will block: 
 - Minors on 18+ server
-- If you romanticise and/or glorify irl shooters
-- If you're racist, transphobic, homophobic, ableist, etc
+- If you romanticise and/or glorify irl shooters (TCC)
+- If you're racist, transphobic, homophobic, ableist, zionist etc
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
