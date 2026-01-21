@@ -9,7 +9,7 @@ Also if I leave randomly in the middle of a conversation, then my wi-fi probably
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Interact if you like these things: Hannah Montana, Sonny With a Chance, JONAS, Modern Family, Liv & Maddie, Descendants, Victorious, iCarly, Club Penguin, Animal Jam, Littlest Pet Shop, Heathers, Teen Titans + more! ![](https://files.catbox.moe/f1ok3t.gif)
+Interact if you like these things: Glee, Hannah Montana, Sonny With a Chance, JONAS, Camp Rock, Lemonade Mouth, Modern Family, Liv & Maddie, Descendants, Victorious, iCarly, Club Penguin, Animal Jam, Littlest Pet Shop, Heathers, Teen Titans + more! ![](https://files.catbox.moe/f1ok3t.gif)
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
