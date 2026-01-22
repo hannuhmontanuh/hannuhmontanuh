@@ -4,7 +4,7 @@
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on Ponytown. Most likely in a cosplay of a Disney Channel character. Feel free to say hello!! ![](https://files.catbox.moe/s8zi57.gif)
+Haai ^_^ ![](https://files.catbox.moe/rzu6y0.gif) I'm usually pretty active on Ponytown. Most likely in a cosplay of a Glee or Disney Channel character. Feel free to say hello!! ![](https://files.catbox.moe/s8zi57.gif)
 Also if I leave randomly in the middle of a conversation, then my wi-fi probably went out.
 
 ![](https://files.catbox.moe/hhu10n.gif)
@@ -20,7 +20,7 @@ Byi:
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
-'DNI'/will block: 
+People I don't like: 
 - Minors on 18+ server
 - If you romanticise and/or glorify irl shooters (TCC)
 - If you're racist, transphobic, homophobic, ableist, zionist etc
