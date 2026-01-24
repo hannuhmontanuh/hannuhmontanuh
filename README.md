@@ -15,8 +15,8 @@ Interact if you like these things: Glee, Hannah Montana, Sonny With a Chance, JO
 
 Byi:  
 - A lot of my interests are really childish (if you couldn't tell already)
-- Things like darkshipping and kodocon content personally make me uncomfortable, so if you could refrain from talking to me about those things that would be great ;^^ I don't harrass people over it, but still. I dislike it and would prefer not to interact with those who do enjoy it.
-- I'm disabled, specifically developmentally disabled (autistic + possible dyspraxia). It affects how I interact with people a lot
+- I don't like glorified depections of incest, pedophilia, or abusive relationships even if they are fictional. I won't engage in arguments about it though so please don't bother trying to include me in shipping discourse
+- I'm disabled, specifically developmentally disabled (autistic, dyspraxic). It affects how I interact with people and how I see the world a lot
 
 ![](https://files.catbox.moe/hhu10n.gif)
 
